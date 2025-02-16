@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/marcelobaez97/](https://www.linkedin.com/in/marcelobaez97/)
 
-- ⚡ Fun fact **Play volleyball, play videogames and learn new things**
+- ⚡ Fun fact **Play Futbol ⚽︎ and Volleyball 🏐, play videogames, and learning new things**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
